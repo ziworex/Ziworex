@@ -1,17 +1,17 @@
 <img src="https://cdn.discordapp.com/attachments/855521255901233172/856666865778294784/ziwo.jpg" align="right" width="400" height="500">
 
-## Selam ben  Ziwo. 😋
+## Zİwo
 grandmaster hacker
 komi sama 🛐
 <br />
 <br />
 
-## Kendi çapında bir siber güvenlik tornacısı | ハッカー
+## öyle boş biri
 
 <br />
 <br />
 
- ## komiyi çok seviyom en sevdiğim kankam komi bahadır öğk </>
+ ##  </>
 
 <br />
 <br />
