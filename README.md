@@ -1,8 +1,8 @@
 <img src="https://cdn.discordapp.com/attachments/855521255901233172/856666865778294784/ziwo.jpg" align="right" width="400" height="500">
 
-## Zİwo
-grandmaster hacker
-komi sama 🛐
+## Ziwo
+Grandmaster Hacker
+Komi Sama 🛐
 <br />
 <br />
 
@@ -30,7 +30,7 @@ komi sama 🛐
 <br />
 
 
-### Kullandığım Teknolojiler
+### Kullandığım Diller
 <img src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/javascript/javascript.png" width="25" height="25">
 <img src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/ios/ios.png" width="25" height="25">
 <img src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/python/python.png" width="25" height="25">
