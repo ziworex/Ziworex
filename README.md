@@ -7,12 +7,12 @@ Komi Sama 🛐
 <br />
 
 ## Grandmaster Hacker
-Komi Sama öderliğinde göreve hazır asker
+Komi Sama önderliğinde göreve hazır.
 
 <br />
 <br />
 
- ##  </> ^.^
+ ##  ^.^  -_-
 
 <br />
 <br />
